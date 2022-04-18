@@ -5,7 +5,9 @@
 - 📫 How to reach me 
 
 https://vk.com/w4rd3ll
+
 https://t.me/green_yetti
+
 https://steamcommunity.com/id/w4rd3ll/
 
 
